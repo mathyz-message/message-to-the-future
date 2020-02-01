@@ -12,3 +12,14 @@ Für den Fall das die Stadt doch in Vergessenheit geraten sein sollte, hier etwa
 Meine Heimat liegt zwischen den Bergen Kösseine und Steinwald, beide sind momentan von dichten, immergrünen Fichtenwäldern bedeckt, ebenso wie ein Großteil der umliegenden Flächen, was im Gegensatz zum Rest Deutschlands unserer Zeit steht, in dem mehr und mehr Wald den Ständen und Äckern weichen muss. Gerade das macht den Reiz Ostbayerns aus, diese gewisse Restnähe zur Natur.
 Je nachdem wann ihr diese Nachricht genau lest, könnte sich durch den Klimawandel oder andere Faktoren daran einiges geändert haben, ich hoffe nur, dass die nachfolgenden Generationen nicht so selbstverständlich zerstörerisch mit allem umgehen wie die letzten drei.
 Aber es gibt auch positive Nachrichten, der Wildtierbestand in den Wäldern erholt sich zusehends, bei und findet man momentan vor allem Rehe, Wildschweine und Rotwild. Mit etwas Glück verirrt sich auch ein Luchs oder Wolf aus dem Osten zu uns.
+
+Ich möchte meine Kurze Geschichte abschließen, mit einem kleinen Verzeichnis an typischen Dialektwörtern und ihren Bedeutungen:
+fei - Fei ist eigentlich nur ein kleines Füllwort, aus dem ich bisher keine beseondere Bedeutung erkennen konnte, man baut es einfach so in seine Sätze ein: Morgen ist fei schon Sonntag. / Ich will heute fei schon noch was essen.
+Sterndlwerfer -  Wunderkerze
+Bumper - sehr große Unterhose
+
+Ich hoffe ihr habt eine schöne Zeit, und wünsche euch dass die Zukunft ähnlich angenehm ist wie die Gegenwart.
+
+Beste Grüße
+
+Michael Zeisel
